@@ -1,1 +1,0 @@
-# yrek-iz.github.io
